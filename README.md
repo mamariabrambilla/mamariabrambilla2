@@ -1,2 +1,1 @@
-https://tenor.com/pt-BR/view/kzary-gif-10659827031922541979
-
+https://media.tenor.com/k-9QNRTZhZsAAAAi/kzary.gif
